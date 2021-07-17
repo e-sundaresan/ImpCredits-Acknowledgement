@@ -1,2 +1,2 @@
 # ImpCredits-Acknowledgement
-Thanks To Original creators of the work
+Thanks To Original creators of the various content posted here.
